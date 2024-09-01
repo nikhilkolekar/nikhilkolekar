@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @nikhilkolekar
 - 👀 I’m interested in software engineering
-- 🌱 I’m currently learning web development,dsa
+- 🌱 I’m interested in software engineering,machine learning, cloud , Quantum physics, Astrophysics, spirituality, & more
 - 💞️ I’m looking to collaborate 
 - 📫 How to reach me 7411817110 & iamnikhilkolekar@gmail.com
 
